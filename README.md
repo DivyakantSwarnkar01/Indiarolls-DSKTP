@@ -15,6 +15,11 @@ https://www.indiarolls.in/pinterest-reels-downloader
 
 https://www.indiarolls.in/pinterest-video-downloader
 
+https://www.indiarolls.in/Downloader
+
+https://m.indiarolls.in
+https://m.indiaRolls.in/pinterest
+
 
 
 
